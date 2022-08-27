@@ -25,7 +25,7 @@ The files are not mine, the quote.
 
 If You Have A Mistake Or A Problem Discord: selim#1337
 
-- **Everything you can imagine is real -**
+**Everything you can imagine is real -**
 
 [![Github Badge](https://img.shields.io/badge/-Github-000?style=quare&labelColor=000&logo=Github&logoColor=white&link=link)](https://github.com/selim1337) 
 [![Instagram Badge](https://img.shields.io/badge/-Instagram-C13584?style=flat-quare&labelColor=C13584&logo=instagram&logoColor=white&link=link)](https://instagram.com/selim1337_)
